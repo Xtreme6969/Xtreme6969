@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Xtreme6969
+- 👀 I’m interested in Learning New Things
+- 🌱 I’m currently learning How to Hack stuff to win stuff in games like gimkit and blooket 
+- 🍒 I'm Taken by a cute one
+- 💫 Interested to find a new hobby
+- Dm Me On insta - @xtremenxsx
